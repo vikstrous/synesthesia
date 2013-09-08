@@ -1,0 +1,1 @@
+This is what people with a specific kind of synesthesia see when they read numbers. This is an experiment to allow us, mortals, to gain a better understanding of those with the superpower to see colors when they see numbers.
